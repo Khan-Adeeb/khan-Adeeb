@@ -14,7 +14,6 @@
 - 📫 How to reach me **adeeb.codes@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/14pRGe-lu8uxayFr2_tF0Kv-o6yhxyjyL/view?usp=sharing](https://drive.google.com/file/d/14pRGe-lu8uxayFr2_tF0Kv-o6yhxyjyL/view?usp=sharing)
-<p align="center"> <img src="https://qph.cf2.quoracdn.net/main-qimg-b2f7085afaa73c6ed510698c600d5784" alt="gif" /> </p>
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
